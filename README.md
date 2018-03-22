@@ -1,27 +1,27 @@
-# archangel_thunderbird
+# Arch :angel: Thunder :bird: 
 
-When the everywhere-eye asks you:
-“Who is the emperor of the sky?”
-Take the Archangel's Thunderbird
+When the everywhere-eye asks you:<br/>
+“Who is the emperor of the sky?”<br/>
+Take the Archangel's Thunderbird<br/>
 
-Go to Edgar Allen
-In the tower of sleep
-He'll tell you a story
-Which makes you to creep
-The echo of your cries is falling so deep
+Go to Edgar Allen<br/>
+In the tower of sleep<br/>
+He'll tell you a story<br/>
+Which makes you to creep<br/>
+The echo of your cries is falling so deep<br/>
 
-Rent a destroyer and sail to Cape Cod
-There lives a lion, they call him God
-There is your elevator to Eden
-But a hole in the sky
+Rent a destroyer and sail to Cape Cod<br/>
+There lives a lion, they call him God<br/>
+There is your elevator to Eden<br/>
+But a hole in the sky<br/>
 
-In shock-corridors standing
-People with their eyes in their hands
-But they don't understand
-Don’t get with your confessional
-Flare into the vaulting flight of stairs
+In shock-corridors standing<br/>
+People with their eyes in their hands<br/>
+But they don't understand<br/>
+Don’t get with your confessional<br/>
+Flare into the vaulting flight of stairs<br/>
 
-Baiting soldiers sleeping in melting house of wax
-Why is the audience not taking the resurrection ax
-Thousands of windows burst open
-And the alarm bells are broken
+Baiting soldiers sleeping in melting house of wax<br/>
+Why is the audience not taking the resurrection axe<br/>
+Thousands of windows burst open<br/>
+And the alarm bells are broken<br/>
